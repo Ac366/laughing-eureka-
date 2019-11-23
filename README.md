@@ -1,4 +1,6 @@
 # laughing-eureka-
 Marketing
 Produce traffic,[efficiently*Effectively]:IPhones repairs & andriod repairs.
-specific audience to sell,buy,unlock-BI
+target specific audience to sell-buy.
+creat a BI structure
+“my woes”
